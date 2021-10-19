@@ -1,1 +1,0 @@
-# Pradeep_Day1_B54_PythonFundamentals
